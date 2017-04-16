@@ -1,2 +1,5 @@
-# Jhuazhuang.github.io
-早早早呀￥博客
+＃Jhuazhuang.github.io
+
+hello guys!
+
+I like talk aout study, so let's learning together!
